@@ -1,0 +1,1 @@
+Finished watching all videos of CS106A and completed the assignments successfully.
